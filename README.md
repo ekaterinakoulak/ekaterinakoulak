@@ -1,4 +1,4 @@
-Hello, my name is **Katya** and I am currently a Research Associate at the NYU Neuroscience Institute. 
+Hello, my name is **Katya** and I am currently a PhD student at Cornell studying neuroscience. 
 
 I am **driven by beautiful design**. 
 
